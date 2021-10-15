@@ -2,4 +2,4 @@
 - 👀 I’m interested in Coding and Video Games
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on (To be determined)
-- 📫 How to reach me (Might provide this at a later date)
+- 📫 How to reach me dawson.bowden@searcyschools.org
