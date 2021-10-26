@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dBowden2022
 - 👀 I’m interested in Coding and Video Games
 - 🌱 I’m currently learning Web Development
-- 💞️ I’m looking to collaborate on (To be determined)
+- 💞️ I’m looking to collaborate on any projects that would be fun to work on!
 - 📫 How to reach me dawson.bowden@searcyschools.org
